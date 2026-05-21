@@ -9,3 +9,5 @@ JUST IN: 🇺🇸 Billionaire Jeff Bezos says the bottom half of US workers shou
 JUST IN: 🇺🇸 Rep. Begich introduces Bitcoin legislation to recognize and codify its "strategic importance" in US.
 
 JUST IN: 🇹🇷 Turkey sold nearly all of its US Treasury holdings in March.
+
+JUST IN: Claude AI developer Anthropic to pay Elon Musk's SpaceX $1.25 billion per month until May 2029.
