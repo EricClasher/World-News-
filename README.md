@@ -11,3 +11,5 @@ JUST IN: 🇺🇸 Rep. Begich introduces Bitcoin legislation to recognize and co
 JUST IN: 🇹🇷 Turkey sold nearly all of its US Treasury holdings in March.
 
 JUST IN: Claude AI developer Anthropic to pay Elon Musk's SpaceX $1.25 billion per month until May 2029.
+
+JUST IN: 🇺🇸🇮🇷 Secretary of War Hegseth says talks with Iran are progressing and US is in a "good place" to make a deal.
